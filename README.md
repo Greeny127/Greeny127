@@ -1,6 +1,6 @@
 Hi.
 
-I'm Sohan Sharad Pillai\
+I'm Sohan\
 19 years old\
 Computer Science and Electronic Engineering @ Warwick
 
